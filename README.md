@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Mohammadadil ibrahim Motikar
+- 👀 I’m interested in sports like shotput,badminton,basketball and gym
+- 🌱 I’m currently learning BE Mechanical engineering at KLE Technological University
+- 📫 How to reach me ...MY INSTA ; _lucifermorningstar_                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                     
